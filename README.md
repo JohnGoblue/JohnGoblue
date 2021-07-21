@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JohnGoblue
-- 👀 I’m interested in getting insights and information from data
+- 👀 I’m interested in getting insights and information from data. 
 - 🌱 I’m currently learning .....
 - 💞️ I’m looking to collaborate on you all
 - 📫 
